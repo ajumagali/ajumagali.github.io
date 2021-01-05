@@ -1,1 +1,0 @@
-# ajumagali.github.io
